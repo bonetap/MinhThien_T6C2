@@ -14,5 +14,22 @@
 
 ---
 [![](https://visitcount.itsvg.in/api?id=Bonetap&icon=0&color=0)](https://visitcount.itsvg.in)
+Giới thiệu Tầm nhìn và Chức năng của Truemart
+
+Tầm nhìn: Truemart hướng tới việc trở thành điểm đến hàng đầu cho những tín đồ thời trang tại Việt Nam, nơi mọi người có thể tìm thấy phong cách riêng của mình. Chúng tôi không chỉ bán quần áo, mà còn mong muốn xây dựng một cộng đồng yêu thích thời trang, nơi khách hàng có thể tự tin thể hiện bản thân và kết nối với những xu hướng mới nhất.
+
+Chức năng:
+
+Cung cấp sản phẩm đa dạng: Truemart mang đến một bộ sưu tập phong phú, từ trang phục hàng ngày đến những bộ đồ dự tiệc, phù hợp với mọi lứa tuổi và phong cách.
+
+Chất lượng đảm bảo: Chúng tôi cam kết cung cấp sản phẩm chất lượng cao, được làm từ nguyên liệu tốt nhất và sản xuất theo tiêu chuẩn nghiêm ngặt.
+
+Dịch vụ khách hàng tận tâm: Đội ngũ nhân viên của chúng tôi luôn sẵn sàng lắng nghe và hỗ trợ khách hàng, đảm bảo bạn có trải nghiệm mua sắm tuyệt vời nhất.
+
+Thời trang bền vững: Truemart cũng chú trọng đến các sản phẩm thân thiện với môi trường, khuyến khích sự phát triển bền vững trong ngành thời trang.
+
+Cập nhật xu hướng thường xuyên: Chúng tôi thường xuyên nghiên cứu và cập nhật các xu hướng mới nhất, giúp bạn luôn nổi bật và thời thượng.
+
+Hãy đến với Truemart, nơi mà thời trang và phong cách gặp gỡ!
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
