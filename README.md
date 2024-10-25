@@ -1,4 +1,4 @@
-# 💫 About Me: LE HOANG MINH THIEN, 4th year student at HUFLIT 
+# 💫 About Me: LE HOANG MINH THIEN, 4th years student at HUFLIT 
 🔭 I’m currently working on Realty Holdings<br>👯 I’m looking to collaborate on Viettel<br>🌱 I’m currently learning Business Analizing<br>💬 Ask me if u want any infomation<br>⚡ Fun fact: I prefer action than promise
 
 
